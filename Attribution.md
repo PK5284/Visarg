@@ -1,0 +1,1 @@
+cglade, "A building with only one light on stock photo", https://www.istockphoto.com/photo/a-building-with-only-one-light-on-gm108178309-4762223. iStock Standard License.
